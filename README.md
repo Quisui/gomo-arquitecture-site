@@ -1,1 +1,0 @@
-# gomo-arquitecture-site
